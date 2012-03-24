@@ -10,3 +10,4 @@ duel summoner de asonde ne!
 <del>Yada!!</del>
 duel in wonderland mo yorosiku ne!!
 天神近辺のおいしい*屋台*教えてください
+Oita daisuki!
