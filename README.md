@@ -8,3 +8,4 @@ hello github
 Aratana Lab. wo yoroshiku ne
 duel summoner de asonde ne!
 Yada!!
+duel in wonderland mo yorosiku ne!!
